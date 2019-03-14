@@ -6,5 +6,10 @@
 
 # 조원 명단
 1492055 문종원  
+thboyz123@gmail.com  
+
 1492056 박민우  
-1492000 조준혁  
+enmw34@naver.com  
+
+1492080 조준혁  
+hyeok8125@naver.com  
